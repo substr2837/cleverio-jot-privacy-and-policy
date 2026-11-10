@@ -50,6 +50,6 @@ We may update this policy from time to time. Any changes will be posted on this 
 
 ## 9. Contact
 
-If you have questions about this policy, contact us at richardokusumasali@gmail.com.
+If you have questions about this policy, contact us at subtructio25@gmail.com.
 
 Last updated: November 11, 2026
